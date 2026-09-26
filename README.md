@@ -49,6 +49,9 @@ _character's :_
 
 <a href="https://github.com/itrap-2245">@itrap-2245</a> $\color{#989898}\textsf{as the itrapped of pt!}$ 
 
+<a href="https://github.com/twottimey">@twottimey</a> $\color{#989898}\textsf{as the two time of pt!}$ 
+
+
 _in debt's:_
 
 
