@@ -47,10 +47,15 @@ _character's :_
 <a href="https://github.com/gamblersi">@gamblersi</a> $\color{#989898}\textsf{as the chance of pt!}$ 
 
 
-<a href="https://github.com/itrap-2245">@itrap-2245</a> $\color{#989898}\textsf{as the itrapped of pt!}$ 
+<a href="https://github.com/itrap-2245">@itrap-2245</a> $\color{#921212}\textsf{as the itrapped of pt!}$ 
 
-<a href="https://github.com/twottimey">@twottimey</a> $\color{#989898}\textsf{as the two time of pt!}$ 
+<a href="https://github.com/twottimey">@twottimey</a> $\color{#989898}\textsf{as the two time of pt!(forsaken) }$ 
 
+<a href="https://github.com/kittyypop">@kittyypop</a> $\color{#921212}\textsf{as the itrapped of pt!(maymadness2012) }$ 
+
+<a href="https://github.com/carcrashxoxo">@carcrashxoxo</a> $\color{#921212}\textsf{as the azure of pt!(forsaken) }$ 
+
+<a href="https://github.com/MAFIAPUP">@MAFIAPUP</a> $\color{#921212}\textsf{as the itrapped of pt! (forsaken) }$ 
 
 _in debt's:_
 
