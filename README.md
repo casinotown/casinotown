@@ -53,3 +53,4 @@ _in debt's:_
 <img width="190"  alt="22174" src="https://github.com/user-attachments/assets/8dbb2bba-cf49-498e-a106-892b8edeb257" />
 <img width="190"  alt="22176" src="https://github.com/user-attachments/assets/890d6cd2-2f68-4e05-8dab-ca6d60e5ef5b" />
 
+<img width="300" alt="22187" src="https://github.com/user-attachments/assets/2a13cb4b-3f57-4ec9-9c96-76fca90f432d" />
