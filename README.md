@@ -62,9 +62,9 @@ _character's :_
 <a href="https://github.com/MAFIAPUP">@MAFIAPUP</a> $\color{#921212}\textsf{the squire of pt!  (dream game) }$ 
 
 
-<a href="https://github.com/bigguykoi">@bigguykoi</a> $\color{#921212}\textsf{as the tony stark of pt! (marvel) }$ 
+<a href="https://github.com/bigguykoi">@bigguykoi</a> $\color{#989898}\textsf{as the tony stark of pt! (marvel) }$ 
 
-<a href="https://github.com/lovingl3tters">@lovingl3tters </a> $\color{#989898}\textsf{as the Caporegime of pt! (forsaken) }$ 
+<a href="https://github.com/lovingl3tters">@lovingl3tters </a> $\color{#921212}\textsf{as the Caporegime of pt! (forsaken) }$ 
 
 _in debt's:_
 
