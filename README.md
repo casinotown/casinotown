@@ -46,6 +46,8 @@ _character's :_
 
 <a href="https://github.com/gamblersi">@gamblersi</a> $\color{#989898}\textsf{as the chance of pt! (forsaken) }$ 
 
+<a href="https://github.com/DEBTHVERIFIED">@DEBTHVERIFIED</a> $\color{#921212}\textsf{the mafioso of pt!  (forsaken) }$ 
+
 
 <a href="https://github.com/itrap-2245">@itrap-2245</a> $\color{#921212}\textsf{as the itrapped of pt! (forsaken) }$ 
 
@@ -54,8 +56,6 @@ _character's :_
 <a href="https://github.com/kittyypop">@kittyypop</a> $\color{#921212}\textsf{as the itrapped of pt! (maymadness2012) }$ 
 
 <a href="https://github.com/carcrashxoxo">@carcrashxoxo</a> $\color{#989898}\textsf{as the azure of pt! (forsaken) }$ 
-
-<a href="https://github.com/MAFIAPUP">@MAFIAPUP</a> $\color{#921212}\textsf{the mafioso of pt!  (forsaken) }$ 
 
 <a href="https://github.com/sea-shantyyy">@sea-shantyyy</a> $\color{#989898}\textsf{as the shedletsky of pt! (forsaken) }$ 
 
