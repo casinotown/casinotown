@@ -2,7 +2,7 @@
   
 <img width="700" alt="card" src="https://github.com/user-attachments/assets/905fa152-e3d8-4cc2-b307-069a614e9483" />
 
-   ![](https://komarev.com/ghpvc/?username=gamblersi&color=CA0401&label=winners)
+   ![](https://komarev.com/ghpvc/?username=casinotown&color=CA0401&label=winners)
 
 $\color{#989898}\textsf{king of gambling :}$ <a href="https://github.com/gamblersi">@gamblersi</a>
 </p>
