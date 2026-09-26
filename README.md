@@ -1,16 +1,55 @@
-## Hi there 👋
+<div align="center">
+  
+<img width="700" alt="card" src="https://github.com/user-attachments/assets/905fa152-e3d8-4cc2-b307-069a614e9483" />
 
-<!--
-**casinotown/casinotown** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+   ![](https://komarev.com/ghpvc/?username=gamblersi&color=CA0401&label=winners)
 
-Here are some ideas to get you started:
+$\color{#989898}\textsf{king of gambling :}$ <a href="https://github.com/gamblersi">@gamblersi</a>
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Satisfy&size=30&pause=1000&color=CA0401&center=true&width=600&lines=welcome+to+casino+town!" alt="Typing SVG" />
+
+<img width="300" alt="chance" src="https://github.com/user-attachments/assets/30d74108-ca2c-4908-b6c4-762f119c5f57" />
+
+<img width="35" alt="22169" src="https://github.com/user-attachments/assets/42706545-2dc9-4ae3-b594-9d081382de4b" /> $\color{#CA0401}\textsf{𓈒ᣟ ಣ𓈒ֵ۫ take a chance and nominate yourself . 𑑖 𓈒 }$ <img width="35"  alt="22170" src="https://github.com/user-attachments/assets/6f08bc4d-495f-4996-a5d6-c4c38b08ad5b" />
+
+<img width="190"  alt="22163" src="https://github.com/user-attachments/assets/38a7dda1-615a-4654-83b9-a362c6a21ee3" />
+<img width="190" alt="22164" src="https://github.com/user-attachments/assets/05e5fa5d-f753-4c27-ac3e-7731058bd0f4" />
+
+
+
+# $\color{#2C2723}{ 𓈒⑅ ꒰ 　SPECIAL}$ $\color{#921212}{MENTIONS  ̣̣ ۟ ♡⃘}$ 
+
+_popular / wellknown! :_
+
+
+_prettiest pony's :_ 
+
+
+_cutest pony's :_ 
+
+
+_kindest players :_ 
+
+
+_top c+h's :_ 
+
+
+
+
+# $\color{#2C2723}{ 𓈒⑅ ꒰ 　CATE}$ $\color{#921212}{GORIES  ̣̣ ۟ ♡⃘}$
+_character's :_
+
+<a href="https://github.com/gamblersi">@gamblersi</a> $\color{#989898}\textsf{as the chance of pt!}$ 
+
+_in debt's:_
+
+
+<img width="700" alt="22177" src="https://github.com/user-attachments/assets/c9b07ecf-e1ab-428a-8246-aa1b0f944a9c" />
+
+
+<img width="190"  alt="22175" src="https://github.com/user-attachments/assets/48093aa8-b2e4-470f-9806-094a5d7cfca0" />
+<img width="190"  alt="22174" src="https://github.com/user-attachments/assets/8dbb2bba-cf49-498e-a106-892b8edeb257" />
+<img width="190"  alt="22176" src="https://github.com/user-attachments/assets/890d6cd2-2f68-4e05-8dab-ca6d60e5ef5b" />
+
