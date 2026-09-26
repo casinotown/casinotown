@@ -55,9 +55,9 @@ _character's :_
 
 <a href="https://github.com/carcrashxoxo">@carcrashxoxo</a> $\color{#989898}\textsf{as the azure of pt! (forsaken) }$ 
 
-<a href="https://github.com/MAFIAPUP">@MAFIAPUP</a> $\color{#921212}\textsf{the shedletsky of pt!  (forsaken) }$ 
+<a href="https://github.com/MAFIAPUP">@MAFIAPUP</a> $\color{#921212}\textsf{the mafioso of pt!  (forsaken) }$ 
 
-<a href="https://github.com/sea-shantyyy">@sea-shantyyy</a> $\color{#989898}\textsf{as the tony stark of pt! }$ 
+<a href="https://github.com/sea-shantyyy">@sea-shantyyy</a> $\color{#989898}\textsf{as ttheshedletsky of pt! }$ 
 
 
 <a href="https://github.com/bigguykoi">@bigguykoi</a> $\color{#921212}\textsf{as the tony stark of pt! }$ 
