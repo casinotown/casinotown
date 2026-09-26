@@ -23,15 +23,18 @@ $\color{#989898}\textsf{king of gambling :}$ <a href="https://github.com/gambler
 
 _popular / wellknown! :_
 
+<a href="https://github.com/gamblersi">@gamblersi</a>
 
 _prettiest pony's :_ 
 
+<a href="https://github.com/itrap-2245">@itrap-2245</a> , <a href="https://github.com/gamblersi">@gamblersi</a>
 
 _cutest pony's :_ 
 
 
 _kindest players :_ 
 
+<a href="https://github.com/itrap-2245">@itrap-2245</a>
 
 _top c+h's :_ 
 
@@ -42,6 +45,9 @@ _top c+h's :_
 _character's :_
 
 <a href="https://github.com/gamblersi">@gamblersi</a> $\color{#989898}\textsf{as the chance of pt!}$ 
+
+
+<a href="https://github.com/itrap-2245">@itrap-2245</a> $\color{#989898}\textsf{as the itrapped of pt!}$ 
 
 _in debt's:_
 
