@@ -57,6 +57,8 @@ _character's :_
 
 <a href="https://github.com/MAFIAPUP">@MAFIAPUP</a> $\color{#921212}\textsf{as the mafioso of pt!  (forsaken) }$ 
 
+<a href="https://github.com/bigguykoi">@bigguykoi</a> $\color{#989898}\textsf{as the tony stark of pt! }$ 
+
 _in debt's:_
 
 
