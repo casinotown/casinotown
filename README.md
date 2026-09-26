@@ -49,17 +49,17 @@ _character's :_
 <a href="https://github.com/DEBTHVERIFIED">@DEBTHVERIFIED</a> $\color{#921212}\textsf{the mafioso of pt!  (forsaken) }$ 
 
 
-<a href="https://github.com/itrap-2245">@itrap-2245</a> $\color{#921212}\textsf{as the itrapped of pt! (forsaken) }$ 
+<a href="https://github.com/itrap-2245">@itrap-2245</a> $\color{#989898}\textsf{as the itrapped of pt! (forsaken) }$ 
 
-<a href="https://github.com/twottimey">@twottimey</a> $\color{#989898}\textsf{as the two time of pt! (forsaken) }$ 
+<a href="https://github.com/twottimey">@twottimey</a> $\color{#921212}\textsf{as the two time of pt! (forsaken) }$ 
 
-<a href="https://github.com/kittyypop">@kittyypop</a> $\color{#921212}\textsf{as the itrapped of pt! (maymadness2012) }$ 
+<a href="https://github.com/kittyypop">@kittyypop</a> $\color{#989898}\textsf{as the itrapped of pt! (maymadness2012) }$ 
 
-<a href="https://github.com/carcrashxoxo">@carcrashxoxo</a> $\color{#989898}\textsf{as the azure of pt! (forsaken) }$ 
+<a href="https://github.com/carcrashxoxo">@carcrashxoxo</a> $\color{#921212}\textsf{as the azure of pt! (forsaken) }$ 
 
-<a href="https://github.com/sea-shantyyy">@sea-shantyyy</a> $\color{#921212}\textsf{as the shedletsky of pt! (forsaken) }$ 
+<a href="https://github.com/sea-shantyyy">@sea-shantyyy</a> $\color{#989898}\textsf{as the shedletsky of pt! (forsaken) }$ 
 
-<a href="https://github.com/MAFIAPUP">@MAFIAPUP</a> $\color{#989898}\textsf{the squire of pt!  (dream game) }$ 
+<a href="https://github.com/MAFIAPUP">@MAFIAPUP</a> $\color{#921212}\textsf{the squire of pt!  (dream game) }$ 
 
 
 <a href="https://github.com/bigguykoi">@bigguykoi</a> $\color{#921212}\textsf{as the tony stark of pt! (marvel) }$ 
