@@ -44,7 +44,7 @@ _top c+h's :_
 # $\color{#2C2723}{ 𓈒⑅ ꒰ 　CATE}$ $\color{#921212}{GORIES  ̣̣ ۟ ♡⃘}$
 _character's :_
 
-<a href="https://github.com/gamblersi">@gamblersi</a> $\color{#989898}\textsf{as the chance of pt!}$ 
+<a href="https://github.com/gamblersi">@gamblersi</a> $\color{#989898}\textsf{as the chance of pt! (forsaken) }$ 
 
 
 <a href="https://github.com/itrap-2245">@itrap-2245</a> $\color{#921212}\textsf{as the itrapped of pt! (forsaken) }$ 
@@ -55,9 +55,12 @@ _character's :_
 
 <a href="https://github.com/carcrashxoxo">@carcrashxoxo</a> $\color{#989898}\textsf{as the azure of pt! (forsaken) }$ 
 
-<a href="https://github.com/MAFIAPUP">@MAFIAPUP</a> $\color{#921212}\textsf{as the mafioso of pt!  (forsaken) }$ 
+<a href="https://github.com/MAFIAPUP">@MAFIAPUP</a> $\color{#921212}\textsf{the shedletsky of pt!  (forsaken) }$ 
 
-<a href="https://github.com/bigguykoi">@bigguykoi</a> $\color{#989898}\textsf{as the tony stark of pt! }$ 
+<a href="https://github.com/sea-shantyyy">@sea-shantyyy</a> $\color{#989898}\textsf{as the tony stark of pt! }$ 
+
+
+<a href="https://github.com/bigguykoi">@bigguykoi</a> $\color{#921212}\textsf{as the tony stark of pt! }$ 
 
 _in debt's:_
 
