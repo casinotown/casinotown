@@ -4,6 +4,8 @@
 
    ![](https://komarev.com/ghpvc/?username=casinotown&color=CA0401&label=winners)
 
+ upd 10/27/2026
+
 $\color{#989898}\textsf{king of gambling :}$ <a href="https://github.com/gamblersi">@gamblersi</a>
 </p>
 
