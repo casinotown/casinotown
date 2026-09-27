@@ -23,14 +23,17 @@ $\color{#989898}\textsf{king of gambling :}$ <a href="https://github.com/gambler
 
 _popular / wellknown! :_
 
-<a href="https://github.com/gamblersi">@gamblersi</a>
+<a href="https://github.com/gamblersi">@gamblersi</a> , <a href="https://github.com/dummyinbed">@dummyinbed</a> , <a href="https://github.com/AcxerSonnellino">@AcxerSonnellino</a> , <a href="https://github.com/dr-vanta">@dr-vanta</a> 
+
 
 _prettiest pony's :_ 
 
-<a href="https://github.com/itrap-2245">@itrap-2245</a> , <a href="https://github.com/gamblersi">@gamblersi</a>
-
+<a href="https://github.com/gamblersi">@gamblersi</a>
+, <a href="https://github.com/itrap-2245">@itrap-2245</a> , <a href="https://github.com/SONNELLINOENTHUSIAST">@SONNELLINOENTHUSIAST</a>
+ 
 _cutest pony's :_ 
 
+<a href="https://github.com/pupfies">@pupfies</a>
 
 _kindest players :_ 
 
@@ -39,6 +42,7 @@ _kindest players :_
 _top c+h's :_ 
 
 
+<a href="https://github.com/Flayedrocker">@Flayedrocker</a> ,<a href="https://github.com/bannysuperman">@bannysuperman </a> , <a href="https://github.com/dr-vanta">@dr-vanta</a>
 
 
 # $\color{#2C2723}{ 𓈒⑅ ꒰ 　CATE}$ $\color{#921212}{GORIES  ̣̣ ۟ ♡⃘}$
@@ -66,8 +70,47 @@ _character's :_
 
 <a href="https://github.com/lovingl3tters">@lovingl3tters </a> $\color{#921212}\textsf{as the Caporegime of pt! (forsaken) }$ 
 
+<a href="https://github.com/Flowersan02">@Flowersan02</a> $\color{#989898}\textsf{as the Elliot of pt! (Waapp) }$ 
+
+<a href="https://github.com/kniferrific">@kniferrific </a> $\color{#921212}\textsf{as the mrdoombringer of pt! (forsaken) }$ 
+
+<a href="https://github.com/matt-1337">@matt-1337</a> $\color{#989898}\textsf{as the postal dude of pt! (postal) }$ 
+
+<a href="https://github.com/N0ISEMAKER">@N0ISEMAKER </a> $\color{#921212}\textsf{as the Consigliere of pt! (forsaken) }$
+
+<a href="https://github.com/Flayedrocker">@Flayedrocker</a> $\color{#989898}\textsf{as the Karl Heisenberg of pt! (Resident Evil 8) }$ 
+
+<a href="https://github.com/bannysuperman">@bannysuperman </a> $\color{#921212}\textsf{as the Clark Kent of pt! (DC) }$
+
+<a href="https://github.com/Chemicalshot">@Flayedrocker</a> $\color{#989898}\textsf{as the Sp3 of pt! (Enneahumans/typology) }$ 
+
+<a href="https://github.com/amseiii">@amseiii </a> $\color{#921212}\textsf{as the amy rose of pt! (sonic the hedgehog) }$
+
+<a href="https://github.com/S0NICSZ">@S0NICSZ</a> $\color{#989898}\textsf{as the sonic of pt! (sonic the hedgehog) }$ 
+
+<a href="https://github.com/dummyinbed">@dummyinbed</a> $\color{#921212}\textsf{as the princezam of pt ! (mcyt) }$ 
+
+<a href="https://github.com/DuMmY_Yo">@DuMmY_Yo</a> $\color{#989898}\textsf{as the 1x1x1x1 of pt! (forsaken) }$ 
+
+<a href="https://github.com/voidbat">@voidbat</a> $\color{#921212}\textsf{as the uzi of pt ! (murder drones) }$ 
+
+<a href="https://github.com/pupfies">@pupfies</a> $\color{#989898}\textsf{as the wifies of pt! (mcyt) }$ 
+
+<a href="https://github.com/kaboodIe">@kaboodIe</a> $\color{#921212}\textsf{as the kaboodle of pt ! (kaboodlesmp) }$ 
+
+<a href="https://github.com/AcxerSonnellino">@AcxerSonnellino</a> $\color{#989898}\textsf{as the guest1337 of pt! (Forsaken) }$ 
+
+<a href="https://github.com/dr-vanta">@dr-vanta</a> $\color{#921212}\textsf{as the dr vanta of pt ! (loomian legacy) }$ 
+
 _in debt's:_
 
+<a href="https://github.com/gamblersi">@gamblersi </a> $\color{#C28D39}\textsf{is in 7,777 debts  }$ ♠️
+
+<a href="https://github.com/amseiii">@amseiii </a> $\color{#C28D39}\textsf{is in debts  }$ ♣️
+
+<a href="https://github.com/S0NICSZ">@S0NICSZ</a> $\color{#C28D39}\textsf{in in debts  }$ ♦️
+
+<a href="https://github.com/AcxerSonnellino">@AcxerSonnellino</a> $\color{#C28D39}\textsf{in in 1850,5 debts  }$ ♥️
 
 <img width="700" alt="22177" src="https://github.com/user-attachments/assets/c9b07ecf-e1ab-428a-8246-aa1b0f944a9c" />
 
