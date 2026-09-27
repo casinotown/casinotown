@@ -31,7 +31,7 @@ _popular / wellknown! :_
 _prettiest pony's :_ 
 
 <a href="https://github.com/gamblersi">@gamblersi</a>
-, <a href="https://github.com/itrap-2245">@itrap-2245</a> , <a href="https://github.com/SONNELLINOENTHUSIAST">@SONNELLINOENTHUSIAST</a>
+, <a href="https://github.com/itrap-2245">@itrap-2245</a> , <a href="https://github.com/SONNELLINOENTHUSIAST">@SONNELLINOENTHUSIAST</a> , <a href="https://GitHub.com/star-employee">@star-employee</a>
  
 _cutest pony's :_ 
 
@@ -132,6 +132,8 @@ _character's :_
 
 <a href="https://github.com/naturalharmoniaa">@naturalharmoniaa</a> $\color{#921212}\textsf{as the Natural Harmonia Gropius of pt ! (Pokémon) }$
 
+<a href="https://GitHub.com/star-employee">@star-employee</a> $\color{#989898}\textsf{as the croissant cookie  of pt! (cookie run kingdom) }$
+
 _in debt's:_
 
 <a href="https://github.com/gamblersi">@gamblersi </a> $\color{#C28D39}\textsf{is in 7,777 debts  }$ ♠️
@@ -140,7 +142,9 @@ _in debt's:_
 
 <a href="https://github.com/S0NICSZ">@S0NICSZ</a> $\color{#C28D39}\textsf{in in debts  }$ ♦️
 
-<a href="https://github.com/AcxerSonnellino">@AcxerSonnellino</a> $\color{#C28D39}\textsf{in in 1850,5 debts  }$ ♥️
+<a href="https://github.com/AcxerSonnellino">@AcxerSonnellino</a> $\color{#C28D39}\textsf{in in 18,505 debts  }$ ♥️
+
+<a href="https://GitHub.com/star-employee">@star-employee</a> $\color{#C28D39}\textsf{in in 6,769122 debts  }$ ♠️
 
 <img width="700" alt="22177" src="https://github.com/user-attachments/assets/c9b07ecf-e1ab-428a-8246-aa1b0f944a9c" />
 
