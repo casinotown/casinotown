@@ -33,7 +33,7 @@ _prettiest pony's :_
  
 _cutest pony's :_ 
 
-<a href="https://github.com/pupfies">@pupfies</a>
+<a href="https://github.com/pupfies">@pupfies</a> , <a href="https://github.com/drownedbride">@drownedbride</a>
 
 _kindest players :_ 
 
@@ -82,7 +82,7 @@ _character's :_
 
 <a href="https://github.com/bannysuperman">@bannysuperman </a> $\color{#921212}\textsf{as the Clark Kent of pt! (DC) }$
 
-<a href="https://github.com/Chemicalshot">@Flayedrocker</a> $\color{#989898}\textsf{as the Sp3 of pt! (Enneahumans/typology) }$ 
+<a href="https://github.com/Chemicalshot">@chemicalshot</a> $\color{#989898}\textsf{as the Sp3 of pt! (Enneahumans/typology) }$ 
 
 <a href="https://github.com/amseiii">@amseiii </a> $\color{#921212}\textsf{as the amy rose of pt! (sonic the hedgehog) }$
 
@@ -101,6 +101,34 @@ _character's :_
 <a href="https://github.com/AcxerSonnellino">@AcxerSonnellino</a> $\color{#989898}\textsf{as the guest1337 of pt! (Forsaken) }$ 
 
 <a href="https://github.com/dr-vanta">@dr-vanta</a> $\color{#921212}\textsf{as the dr vanta of pt ! (loomian legacy) }$ 
+
+<a href="https://github.com/Gatita-here">@Gatita-here</a> $\color{#989898}\textsf{as the Groxmc of pt! (mc yt) }$ 
+
+<a href="https://github.com/disorderlyfashion">@disorderlyfashion</a> $\color{#921212}\textsf{as the squirrelflight of pt ! (warrior cats) }$
+
+<a href="https://github.com/planetlordd">@planetlordd</a> $\color{#989898}\textsf{as the planetlord of pt! (life steal) }$ 
+
+<a href="https://github.com/c-cutesy">@c-cutesy</a> $\color{#921212}\textsf{as the Devin wolf of pt ! (the moon i rot behind) }$
+
+<a href="https://github.com/Nerosuince">@Nerosuince</a> $\color{#989898}\textsf{as the Andrew of pt! (bad things) }$ 
+
+<a href="https://github.com/PESKYMAILMAN">@PESKYMAILMAN</a> $\color{#921212}\textsf{as the Spamton of pt ! (Deltarune) }$
+
+<a href="https://github.com/MapleSyrup-dot">@MapleSyrup-dot</a> $\color{#989898}\textsf{as the Razor of pt! (objectified) }$
+
+<a href="https://github.com/flaskofvodka">@flaskofvodka</a> $\color{#921212}\textsf{as the tom of pt ! (eddsworld) }$
+
+<a href="https://github.com/SukunaXRyomen">@SukunaXRyomen</a> $\color{#989898}\textsf{as the Gojo Satoru of pt! (Jujutsu Kaisen) }$
+
+<a href="https://github.com/Corintheuss">@Corintheuss</a> $\color{#921212}\textsf{as the Corintheuss of pt ! (The Sandman) }$
+
+<a href="https://github.com/Heart0fGold">@Heart0fGold</a> $\color{#989898}\textsf{as the Michel Ney  of pt! (Napoleonic) }$
+
+<a href="https://github.com/Ham-milton">@Ham-milton</a> $\color{#921212}\textsf{as the Jean Lannes of pt ! (Napoleonic) }$
+
+<a href="https://github.com/perishallmortals">@perishallmortals</a> $\color{#989898}\textsf{as the jinx of pt! (arcane/lol) }$
+
+<a href="https://github.com/naturalharmoniaa">@naturalharmoniaa</a> $\color{#921212}\textsf{as the Natural Harmonia Gropius of pt ! (Pokémon) }$
 
 _in debt's:_
 
