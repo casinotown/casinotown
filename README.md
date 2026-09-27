@@ -110,7 +110,7 @@ _character's :_
 
 <a href="https://github.com/planetlordd">@planetlordd</a> $\color{#989898}\textsf{as the planetlord of pt! (life steal) }$ 
 
-<a href="https://github.com/c-cutesy">@c-cutesy</a> $\color{#921212}\textsf{as the Devin wolf of pt ! (the moon i rot behind) }$
+<a href="https://github.com/c-utesy">@c-utesy</a> $\color{#921212}\textsf{as the Devin wolf of pt ! (the moon i rot behind) }$
 
 <a href="https://github.com/Nerosuince">@Nerosuince</a> $\color{#989898}\textsf{as the Andrew of pt! (bad things) }$ 
 
