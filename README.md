@@ -39,7 +39,7 @@ _cutest pony's :_
 
 _kindest players :_ 
 
-<a href="https://github.com/itrap-2245">@itrap-2245</a>
+<a href="https://github.com/itrap-2245">@itrap-2245</a> , <a href="https://GitHub.com/Ilove-him">@Ilove-him</a>
 
 _top c+h's :_ 
 
@@ -134,17 +134,69 @@ _character's :_
 
 <a href="https://GitHub.com/star-employee">@star-employee</a> $\color{#989898}\textsf{as the croissant cookie  of pt! (cookie run kingdom) }$
 
+<a href="https://github.com/aspenolia">@aspenolia</a> $\color{#921212}\textsf{as the lord Azurewrath of pt ! (voidtales) }$
+
+<a href="https://GitHub.com/Elliotwitness">@Elliotwitness</a> $\color{#989898}\textsf{as the elliot of pt! (forsaken) }$
+
+<a href="https://github.com/WhispedVanilla">@WhispedVanilla</a> $\color{#921212}\textsf{as the Slingshot of pt ! (Phighting) }$
+
+<a href="https://GitHub.com/Jeverus">@Jeverus</a> $\color{#989898}\textsf{as the Slasher of pt! (forsaken) }$
+
+<a href="https://github.com/theemotionalside">@theemotionalside</a> $\color{#921212}\textsf{as the heart of pt ! (Chonny's Charming Chaos Compendium) }$
+
+<a href="https://GitHub.com/yellowdeltarune">@yellowdeltarune</a> $\color{#989898}\textsf{as the soulvester of pt! (Dandys world) }$
+
+<a href="https://github.com/demonbell3">@demonbell3</a> $\color{#921212}\textsf{as the Charlie Morningstar of pt ! (Hazbin Hotel) }$
+
+<a href="https://GitHub.com/Ilove-him">@Ilove-him</a> $\color{#989898}\textsf{as the Mapicc of pt! (Unstable SMP) }$
+
+<a href="https://github.com/bridalbait">@bridalbait</a> $\color{#921212}\textsf{as the black forest cookie of pt ! (cookie run kingdom) }$
+
+<a href="https://GitHub.com/darlingslime">@darlingslime</a> $\color{#989898}\textsf{as the John Lennon of pt! (The Beatles) }$
+
+<a href="https://github.com/blehpigsterr">@blehpigsterr</a> $\color{#921212}\textsf{as the Sonia Nevermind  of pt ! (Danganronpa 2 Goodbye Despair) }$
+
+<a href="https://GitHub.com/duckseatbreads">@duckseatbreads</a> $\color{#989898}\textsf{as the John Constantine of pt! (DC) }$
+
+<a href="https://github.com/cashreggister">@cashreggister</a> $\color{#921212}\textsf{as the Goomy of pt ! (Pokemon) }$
+
+<a href="https://GitHub.com/plsticpup">@plsticpup</a> $\color{#989898}\textsf{as the jason todd of pt! (DC) }$
+
+<a href="https://github.com/deadlypoisonn">@deadlypoisonn</a> $\color{#921212}\textsf{as the poison of pt ! (sonic originals) }$
+
+<a href="https://GitHub.com/PUNK-REBEL">@PUNK-REBEL</a> $\color{#989898}\textsf{as the Surge the Tenrec  of pt! (Sonic IDW) }$
+
+<a href="https://github.com/VArtfultrust">@VArtfultrust</a> $\color{#921212}\textsf{as the parrotx2 of pt ! (unstable smp) }$
+
+<a href="https://GitHub.com/bunchoffriends">@bunchoffriends</a> $\color{#989898}\textsf{as the anthony po of pt! (bunch of friends) }$
+
+<a href="https://github.com/itsmealtime">@itsmealtime</a> $\color{#921212}\textsf{as the spongebud of pt ! (bikini horrors) }$
+
+<a href="https://GitHub.com/VOXMANIA">@VOXMANIA</a> $\color{#989898}\textsf{as the Vox Populi of pt! (Hazbin Hotel) }$
+
+<a href="https://github.com/Itrappedfan">@Itrappedfan</a> $\color{#921212}\textsf{as the FroggyDudeMc of pt ! (mcyt) }$
+
+<a href="https://GitHub.com/Supreme-Angel">@Supreme-Angel</a> $\color{#989898}\textsf{as the Gabriel of pt! (ultrakill) }$
+
+<a href="https://github.com/007n7zboyfriend">@007n7zboyfriend</a> $\color{#921212}\textsf{as the Sayori of pt ! (ddlc) }$
+
 _in debt's:_
 
-<a href="https://github.com/gamblersi">@gamblersi </a> $\color{#C28D39}\textsf{is in 7,777 debts  }$ ♠️
+<a href="https://github.com/gamblersi">@gamblersi </a> $\color{#C28D39}\textsf{is in 777,777,777 debts  }$ ♠️
 
-<a href="https://github.com/amseiii">@amseiii </a> $\color{#C28D39}\textsf{is in debts  }$ ♣️
+<a href="https://github.com/amseiii">@amseiii </a> $\color{#C28D39}\textsf{is in debts  }$ ♦️
 
-<a href="https://github.com/S0NICSZ">@S0NICSZ</a> $\color{#C28D39}\textsf{in in debts  }$ ♦️
+<a href="https://github.com/S0NICSZ">@S0NICSZ</a> $\color{#C28D39}\textsf{in in debts  }$ ♣️
 
 <a href="https://github.com/AcxerSonnellino">@AcxerSonnellino</a> $\color{#C28D39}\textsf{in in 18,505 debts  }$ ♥️
 
 <a href="https://GitHub.com/star-employee">@star-employee</a> $\color{#C28D39}\textsf{in in 6,769122 debts  }$ ♠️
+
+<a href="https://GitHub.com/duckseatbreads">@duckseatbreads</a> $\color{#C28D39}\textsf{is in 111,988 debts  }$ ♦️
+
+<a href="https://github.com/cashreggister">@cashreggister</a> $\color{#C28D39}\textsf{in in 704 debts  }$ ♣️
+
+<a href="https://github.com/kiwiconiccc">@kiwiconiccc</a> $\color{#C28D39}\textsf{in in debts  }$ ♥️
 
 <img width="700" alt="22177" src="https://github.com/user-attachments/assets/c9b07ecf-e1ab-428a-8246-aa1b0f944a9c" />
 
