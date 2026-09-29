@@ -178,7 +178,6 @@ _character's :_
 
 <a href="https://GitHub.com/Supreme-Angel">@Supreme-Angel</a> $\color{#989898}\textsf{as the Gabriel of pt! (ultrakill) }$
 
-<a href="https://github.com/007n7zboyfriend">@007n7zboyfriend</a> $\color{#921212}\textsf{as the Sayori of pt ! (ddlc) }$
 
 _in debt's:_
 
