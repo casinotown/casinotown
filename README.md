@@ -4,7 +4,9 @@
 
    ![](https://komarev.com/ghpvc/?username=casinotown&color=CA0401&label=winners)
 
- last upd 10/28/2026
+ last upd 11/10/2026
+
+ hi sorry for not adding, life got really busy for me lately and I don't have time to add everyone, I'll be closing category now and only add the people who nominated before the category are closed, thank u for ur patience I'll open them again soon
 
 $\color{#989898}\textsf{king of gambling :}$ <a href="https://github.com/gamblersi">@gamblersi</a>
 </p>
